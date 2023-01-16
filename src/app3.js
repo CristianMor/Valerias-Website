@@ -1,2 +1,0 @@
-
-se resolvio otro problema
